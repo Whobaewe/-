@@ -2,12 +2,19 @@
 
 
 게임 구매(정상루트)와 mmocs(꼼수)
+
 http://gall.dcinside.com/board/view/?id=darksouls&no=246189
+
 상황과 제 5조(다 안깨도 됨) 공략
+
 
 테헌 고늑 저택을 이용한 에임 연습
 
+http://gall.dcinside.com/board/view/?id=darksouls&no=246190&page=1
+
 캐주얼과 랭크게임의 이해
+
+http://gall.dcinside.com/board/view/?id=darksouls&no=246191&page=1
 
 첫 캐주얼 게임 체험(뉴비 시점의 공격팀, 방어팀 플레이)
 
