@@ -2,7 +2,7 @@
 
 
 게임 구매(정상루트)와 mmocs(꼼수)
-
+http://gall.dcinside.com/board/view/?id=darksouls&no=246189
 상황과 제 5조(다 안깨도 됨) 공략
 
 테헌 고늑 저택을 이용한 에임 연습
