@@ -8,7 +8,7 @@ http://gall.dcinside.com/board/view/?id=darksouls&no=246189
 상황 X 테헌이나 좀 돌아보고 
 
 
-테헌 고늑 저택을 이용한 에임 연습
+테헌 고늑 저택을 이용한 에임 연습 -> 저택 X 다른맵도 하면서 게임 적응 조금 
 
 http://gall.dcinside.com/board/view/?id=darksouls&no=246190&page=1
 
