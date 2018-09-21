@@ -5,7 +5,7 @@
 
 http://gall.dcinside.com/board/view/?id=darksouls&no=246189
 
-상황과 제 5조(다 안깨도 됨) 공략
+상황 X 테헌이나 좀 돌아보고 
 
 
 테헌 고늑 저택을 이용한 에임 연습
